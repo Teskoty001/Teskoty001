@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Teskoty001
-- 👀 I’m interested in computer scince, and com puter engeneering
-- 🌱 I’m currently learning... ICT 
+- 👀 I’m a  computer scince, and computer engeneering
+- 🌱 I’m currently  done learning... ICT 
 - 💞️ I’m looking to collaborate on ... lerning computer languages, web designing, app creator
 - 📫 How to reach me ... my whatsapp number: 08131894297, my tiktok, facebook, instagram page:teskoty 001
 - 😄 Pronouns: ...me
